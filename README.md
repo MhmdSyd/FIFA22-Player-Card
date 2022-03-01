@@ -5,5 +5,8 @@ FIFA 22 Player Card
 
 
 
-https://user-images.githubusercontent.com/70843399/155357441-322c5f48-14f1-4784-9bbc-355284e7bf2e.mp4
+
+
+
+https://user-images.githubusercontent.com/70843399/156093352-4e2a9a4c-6c13-42f2-b534-7632f49a3558.mp4
 
